@@ -1,4 +1,4 @@
-#  
+#  Things 3 for macOS automatic Utility - version history and custom themes is the best Things 3 for macOS utility, featuring version history and custom themes. Safe, efficient, and
 
 
 
